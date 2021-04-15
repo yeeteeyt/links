@@ -10,3 +10,5 @@ https://thaone5866.github.io/deadlands.io/
 
 https://thaone5866.github.io/discord/
 
+https://thaone5866.github.io/hell
+
