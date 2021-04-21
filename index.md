@@ -12,3 +12,5 @@ https://thaone5866.github.io/discord/
 
 https://thaone5866.github.io/hell
 
+https://thaone5866.github.io/fnf
+
