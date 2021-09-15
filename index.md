@@ -14,3 +14,5 @@ https://thaone5866.github.io/hell
 
 https://thaone5866.github.io/fnf
 
+https://thaone5866.github.io/altpage/
+
